@@ -1,5 +1,5 @@
 # "Experience"
-Director of dynamic interpolation for comprehensive media distribution and analysis as it applies to heuristic community building and efficient workplace design practices through the open ambiguity foundation. Former head of technical minutiae at the global foundation of situational systematic dependence and programmatic regression analysis. Lead team lead at corpcorp. 
+Interdisciplinary facilitator of modal editing ecosystems with specialization in extensible runtime configuration architectures through asynchronous plugin integration frameworks. Principal investigator of vim-native command grammar optimization for cognitive workflow acceleration and keystroke efficiency matrices. Former evangelist of buffer-window-tabpage hierarchical abstraction models at the Institute for Text Manipulation Ontology. Chief visionary officer of recursive keymapping topology at VimCon. 
 
 # Currently Learning
 - Industrial confusion & inconviencience engineering
