@@ -4,7 +4,6 @@
 - nvim
 - liquification
 - analytical analysis
-   
 
 
 # "Experience"
